@@ -1,1 +1,0 @@
-Seekonk GWC Club
